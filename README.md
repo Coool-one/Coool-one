@@ -6,7 +6,7 @@ i live on earth
 
 i like cats
 
-i play game like fn mc valo and brawl stars
+i play game like Fortnite, fall guys, VALorant, MINECRAFT, bravl stars also geometry dash
 
 i like the letter E
 
