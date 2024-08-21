@@ -1,8 +1,12 @@
+# YOOOO
+
+im a guy and i have a PC (actually)
+
 i live on earth
 
 i like cats
 
-i play game slike fn mc valo and brawl stars
+i play game like fn mc valo and brawl stars
 
 i like the letter E
 
