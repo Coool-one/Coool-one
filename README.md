@@ -12,8 +12,6 @@ i like the letter E
 
 i make resource packs for minecraft
 
-Basically im a guy with a pc who plays games and loves the letter E and makes resource packs for minecraft
-
 im also a student
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Montserrat&pause=1000&width=435&lines=Touch+some+Grass)](https://git.io/typing-svg)
